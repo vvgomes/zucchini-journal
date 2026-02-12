@@ -1,7 +1,5 @@
 # Alcebiades
 
----
-
 Alcebiades, ao sabe-lo<br/>
 Assoviou para o seu camelo<br/>
 Acinzentou todo seu cabelo<br/>
