@@ -2,32 +2,31 @@
 
 ---
 
-Alcebiades, ao sabe-lo
-Assoviou para o seu camelo
-Acinzentou todo seu cabelo
-Assinalou colecao de selo
+Alcebiades, ao sabe-lo<br/>
+Assoviou para o seu camelo<br/>
+Acinzentou todo seu cabelo<br/>
+Assinalou colecao de selo<br/>
 
-Afunilou o que estava ledo
-Assaltou o banco de brinquedo
-Assassinou quem lhe dava medo
-Assegurou com seu terno preto
+Afunilou o que estava ledo<br/>
+Assaltou o banco de brinquedo<br/>
+Assassinou quem lhe dava medo<br/>
+Assegurou com seu terno preto<br/>
 
-Assosegou ja e tarde o velo
-Acetinou o seu pe esquerdo
-Encinerou esquentou o gelo
-Azeitou bem o seu belo pelo
+Assosegou ja e tarde o velo<br/>
+Acetinou o seu pe esquerdo<br/>
+Encinerou esquentou o gelo<br/>
+Azeitou bem o seu belo pelo<br/>
 
-Alcebia-des mal sabia des-ses ditos populares
-Alcebia-des mal subia des-cia todos os andares
-Alcebia-des mal devia ser sortudo a pesares
-Alcebia-des mal queria ser rico dos azares
+Alcebia-des mal sabia des-ses ditos populares<br/>
+Alcebia-des mal subia des-cia todos os andares<br/>
+Alcebia-des mal devia ser sortudo a pesares<br/>
+Alcebia-des mal queria ser rico dos azares<br/>
 
-Alcebia-despertava
-Sempre segurava
-Se atormentava
-Acelerava
+Alcebia-despertava<br/>
+Sempre segurava<br/>
+Se atormentava<br/>
+Acelerava<br/>
 
-Alcebiades desandava
-Assim ia e voltava
+Alcebiades desandava<br/>
+Assim ia e voltava<br/>
 
----
