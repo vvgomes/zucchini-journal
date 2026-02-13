@@ -1,4 +1,4 @@
-## Narcissist
+# Narcissist
 
 The Giver is someone who finds joy in serving others. They have a natural inclination to do good things to people around them. Givers will seek other people's needs in order to take action. Givers will give gifts, experiences, attention, love. Many times the Giver forgets about themselves in the benefit of others.
 
