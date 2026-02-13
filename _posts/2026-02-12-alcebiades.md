@@ -12,19 +12,16 @@ Assegurou com seu terno preto<br/>
 
 Assosegou ja e tarde o velo<br/>
 Acetinou o seu pe esquerdo<br/>
-Encinerou esquentou o gelo<br/>
+Incinerou esquentou o gelo<br/>
 Azeitou bem o seu belo pelo<br/>
 
-Alcebia-des mal sabia des-ses ditos populares<br/>
-Alcebia-des mal subia des-cia todos os andares<br/>
-Alcebia-des mal devia ser sortudo a pesares<br/>
-Alcebia-des mal queria ser rico dos azares<br/>
+Alcebiades mal sabia desses ditos populares<br/>
+Alcebiades mal subia descia todos os andares<br/>
+Alcebiades mal devia ser sortudo de apesares<br/>
+Alcebiades mal queria ser o rico dos azares<br/>
 
-Alcebia-despertava<br/>
-Sempre segurava<br/>
-Se atormentava<br/>
-Acelerava<br/>
-
-Alcebiades desandava<br/>
-Assim ia e voltava<br/>
+Alcebiadespertava<br/>
+Alcebiadesandava<br/>
+Alcebiadesde muito jovem <br/>
+De seu nome se orgulhava<br/>
 
