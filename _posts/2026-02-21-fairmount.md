@@ -63,6 +63,8 @@ Aquele que construía o espaço confortável para o aprendizado dela.<br/>
 Aquele que seguia atrás para observá-la com zelo.<br/>
 E tocava a campainha da bicicleta, só para ouvi-la tocar de volta.<br/>
 
+<img src="/assets/fairmount-sketch.jpg" alt="Selfie at the Fairmount Park pencil sketch" class="post-image"/>
+
 Hoje, ele carrega um profundo respeito à _Ciclista de Fairmount_.<br/>
 À sua coragem, persistência e dedicação.<br/>
 Ele conhece, de perto, a etapa mais importante dessa jornada.<br/>
