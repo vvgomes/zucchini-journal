@@ -5,7 +5,7 @@ Andando mais rápido que os carros.<br/>
 Entre os ônibus e cruzando semáforos vermelhos.<br/>
 Expontânea como a primavera.<br/>
 Ela precisa de ação e surpresa.<br/>
-Ela anseia pelo desconhecido, pelo improvável, pelo profano.<br/>
+Ela anseia o desconhecido, o improvável, o profano.<br/>
 Impulsiva de forma quase imprudente.<br/>
 Observada por pedestres admirados.<br/>
 Sem capacete, sem medo, sem desculpas.<br/>
