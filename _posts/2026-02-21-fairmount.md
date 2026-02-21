@@ -19,21 +19,22 @@ Ele é um _Ciclista Lento_. Ele curte o passeio.<br/>
 Sua bici não é estilosa. É confortável.<br/>
 Seu caminho é calmo e previsível.<br/>
 Usa capacete, fones de ouvido e ouve audio-livros.<br/>
-Em direção ao para o Prospect Park em uma manhã de sábado.<br/>
+Em direção ao Prospect Park em uma manhã de sábado.<br/>
 Ele costuma parar no caminho para tomar um café.<br/>
 Para consultar o mapa, tirar uma foto.<br/>
-Refletido o passado e planejando o futuro.<br/>
+Reflete o passado e planeja o futuro.<br/>
 Com cuidado, atento ao trânsito, de uma forma quase tediosa.<br/>
 E um tanto mais lento do que um dia costumava ser.<br/>
 
 Mas ele não é o tipo de ciclista que serve.<br/>
 Existem ciclistas mais interessantes por aí.<br/>
 Com bicicletas imponentes e agressivas.<br/>
-Cheios de símbolos de rebeldia.<br/>
+Portando símbolos de rebeldia.<br/>
+Sem responsabilidades, compromissos, ou horários.<br/>
 Sempre prontos para partir, sem destino.<br/>
 Por rotas perigosas e trilhas secretas.<br/>
 Ciclistas pelo simples prazer de pedalar.<br/>
-Em uma busca veloz de liberdade.<br/>
+Em uma busca veloz por liberdade.<br/>
 Oferecendo um lugar em seu grupo.<br/>
 Onde tudo parece ser mais atraente,<br/>
 Aos olhos da _Ciclista Urbana_.<br/>
@@ -62,11 +63,11 @@ Aquele que construía o espaço confortável para o aprendizado dela.<br/>
 Aquele que seguia atrás para observá-la com zelo.<br/>
 E tocava a campainha da bicicleta, só para ouvi-la tocar de volta.<br/>
 
-Ele tem um profundo respeito à _Ciclista de Fairmount_.<br/>
+Hoje, ele carrega um profundo respeito à _Ciclista de Fairmount_.<br/>
 À sua coragem, persistência e dedicação.<br/>
 Ele conhece, de perto, a etapa mais importante dessa jornada.<br/>
-Aprender a mover-se no mundo, tão longe de casa, é um desafio gigante.<br/>
-Aceitar-se vulnerável para os primeiros passos é ainda mais desafiador.<br/>
+Aprender a mover-se no mundo, tão longe de casa, é um desafio assutador.<br/>
+Aceitar-se vulnerável para dar os primeiros passos é ainda mais desafiador.<br/>
 A _Ciclista Urbana_ não seria nada sem a _Ciclista de Fairmount_.<br/>
 Pedalar rápido através do caos da cidade é puro exibicionismo,<br/>
 Comparado aos obstáculos superados ao redor do Fairmount Park.<br/>
@@ -76,7 +77,7 @@ Sozinho, com a mesma bicicleta velha e suficiente.<br/>
 Quase sempre a caminho do Prospect Park e de volta.<br/>
 Com algumas correções de rota aqui e ali.<br/>
 Entre angústia e tranquilidade, ele guarda com carinho<br/>
-A memória as vitórias da _Ciclista de Fairmount_.<br/>
+A memória e as vitórias da _Ciclista de Fairmount_.<br/>
 Enquanto vai perdendo de vista a _Ciclista Urbana_<br/>
 Que desaparece rapidamente na linha do horizonte.<br/>
 
