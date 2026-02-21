@@ -70,9 +70,8 @@ Andar rápido entre os carros da cidade é puro exibicionismo.
 Comparado às suas grandes conquistas ao redor do Fairmount Park.
 
 O _Ciclista Lento_ permanece em movimento.
-Sozinho, com a mesma velha bicicleta.
+Sozinho, com a mesma bicicleta velha e suficiente.
 Ainda a caminho do Prospect Park e de volta.
 Com algumas correções de rota aqui e ali.
-Entre angústia e tranquilidade.
-Ele guarda com carinho as lembranças e vitórias da _Ciclista de Fairmount_.
+Entre angústia e tranquilidade, ele guarda com carinho as lembranças e vitórias da _Ciclista de Fairmount_.
 Enquanto vai perdendo de vista a _Ciclista Urbana_, que desaparece rapidamente na linha do horizonte.
