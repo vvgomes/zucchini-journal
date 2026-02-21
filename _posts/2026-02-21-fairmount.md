@@ -69,10 +69,10 @@ A _Ciclista Urbana_ não seria nada sem a _Ciclista de Fairmount_.
 Andar rápido entre os carros da cidade é puro exibicionismo.
 Comparado às suas grandes conquistas ao redor do Fairmount Park.
 
-O _Ciclista Lento_ continua em movimento.
+O _Ciclista Lento_ permanece em movimento.
 Sozinho, com a mesma velha bicicleta.
 Ainda a caminho do Prospect Park e de volta.
 Com algumas correções de rota aqui e ali.
 Entre angústia e tranquilidade.
-Ele guarda admiração das vitórias da _Ciclista de Fairmount_.
-Enquanto a _Ciclista Urbana_ vai desaparecendo rapidamente à linha do horizonte.
+Ele guarda com carinho as lembranças e vitórias da _Ciclista de Fairmount_.
+Enquanto vai perdendo de vista a _Ciclista Urbana_, que desaparece rapidamente na linha do horizonte.
