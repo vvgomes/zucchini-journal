@@ -69,7 +69,7 @@ A _Ciclista Urbana_ não seria nada sem a _Ciclista de Fairmount_.
 Andar rápido entre os carros da cidade é puro exibicionismo.
 Comparado às suas grandes conquistas ao redor do Fairmount Park.
 
-Hoje em dia, o _Ciclista Lento_ continua em movimento.
+O _Ciclista Lento_ continua em movimento.
 Sozinho, com a mesma velha bicicleta.
 Ainda a caminho do Prospect Park e de volta.
 Com algumas correções de rota aqui e ali.
